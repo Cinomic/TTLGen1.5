@@ -3,7 +3,7 @@ Thông báo kết quả đợt tuyển mem 1.5 của The Tech Lab
 
 
 
-Kính gửi bạn Hoàng Đức Hiếu của THPT Việt Đức, thay mặt cho CLB mình xin vui mừng thông báo
+Kính gửi bạn Bùi Hoàng Kim Ngân của THPT Việt Đức, thay mặt cho CLB mình xin vui mừng thông báo
 
 BẠN ĐÃ TRỞ THÀNH THÀNH VIÊN TIỂU BAN MENDES - TRUYỀN THÔNG GEN 1.5 CỦA CLB THE TECH LAB
 
